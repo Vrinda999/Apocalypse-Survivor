@@ -11,3 +11,5 @@ It is also Uploaded on Itch.io and is available to be played on Web.
 Check it out at: https://makizenin2718.itch.io/avy-dsg-2022-apocalypse-survivor-fps
 
 Watch Demo at: https://drive.google.com/file/d/1A8ozm4heq6e1EjAm2gMRR1Bt0WEw0RQ5/view?usp=drive_link
+
+Map of the City taken from @TutorialsEU on Youtube.
